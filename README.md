@@ -18,9 +18,9 @@ i have some other places where i store things about me to keep things organized!
 - i use tone tags
 - i have adhd, autism, and *lots* of anxiety hadfgkjs
 - i speak english and toki pona
-- i keyboard spam to show emotion sometimes (usually laughing, but can also be when i'm embarrasedish or going crazy lol)
-- i'm plural! it's usually just me, unless we're more comfortable in that situation :>
+- i keyboard spam to show emotion sometimes (usually laughing, but can also be when i'm embarrased or my brain is bluescreening)
+- i'm plural! it's usually just me, unless we're more comfortable in that situation :> here's our [pluralkit](https://dash.pluralkit.me/profile/s/mttho) :>
 - i'm an inclusionist when it comes to identities especially :> brain stuff is so weird that it's stupid to gatekeep it, you're safe to talk to me about anything :>
-- you are completely fine to swear around me and i'd prefer no slurs without warning :> i do swear sometimes but its rare enough that it might be weird to see/hear, *please* don't point it out! it makes me uncomfortable :<
+- you are completely fine to swear around me and i'd prefer no slurs without warning but i'm usually fine!
 - please don't sexualize me (i'm a minor so thats a given, but *still*)! don't ship me unless it's something that's already established, and don't make it romantic.
 - i code in python (sitll learning) and skript<sup>([?](https://github.com/SkriptLang/Skript#readme))</sup>, and i'm planning on learning java
