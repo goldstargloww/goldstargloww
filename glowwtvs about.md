@@ -8,7 +8,7 @@ all you ever feel is pain so i would rather just feel nothing! [×](https://open
 
 ***
 
-i wanna be a 3d ghost in your dream
+i wanna be a 3d ghost in your dreams
 
 the smell of burning flesh and sweat and chlorine
 
