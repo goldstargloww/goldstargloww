@@ -11,9 +11,9 @@ i have some other places where i store things about me to keep things organized!
 
 ## info
 
-- i'm a minor (13-15)
+- i'm a minor (14-16)
 - pronouns (auxillary): they/it
-- pronouns (preferred): [they/glow/void/ender+](https://en.pronouns.page/@goldstargloww)
+- pronouns (preferred): [they/vae/void/ender/it+](https://prns.cc/ehrtxa)
 - i go by gold, but golb is fine too in a nonserious way
 - i don't mind tone tags :D i pretty much mirror the usage of whoever i'm talking to
 - i'm adhd, autistic, and i have *lots* of anxiety hadfgkjs
