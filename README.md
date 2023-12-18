@@ -5,14 +5,13 @@
 
 ## links for my info
 i have some other places where i store things about me to keep things organized!
-- [general info](https://goldstargloww.carrd.co) *barely updated, small innacuracies, generalized*
-- [identities](https://rentry.co/goldstargloww) *lots of em, barely updated, small innacuracies*
-- [pronouns](https://pronouns.cc/@starglowwOS/gold) *pronouns kept up to date, identities are less specific*
+- [general info](https://goldstargloww.neocities.org)
+- [pronouns](https://pronouns.cc/@starglowwOS/goldstargloww)
 
 ## info
 
 - i'm a minor (14-16)
-- pronouns (auxillary): they/it
+- pronouns (auxiliary): they/it
 - pronouns (preferred): [they/vae/void/ender/it+](https://prns.cc/ehrtxa)
 - i go by gold, but golb is fine too in a nonserious way
 - i don't mind tone tags :D i pretty much mirror the usage of whoever i'm talking to
